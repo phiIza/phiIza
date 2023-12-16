@@ -20,6 +20,11 @@
    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀     ⠀    ⠀    ⠀    ⠀       ⠀    ⠀    ⠀    ⠀    ⠀    ⠀                            ⠀ ✦﹒ ⠀glory to the antarctic empire .
 
   ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀    ⠀     ⠀    ⠀    ⠀    ⠀       ⠀    ⠀    ⠀    ⠀    ⠀    ⠀                                ⠀ — ⠀w2i when int ^_^
+
+  
+
+   ⠀ ✦﹒ consider going to the colorza<br><br>
+   ⠀                    repository too btw :3 if u can
    ![image](https://github.com/colorza/colorza/assets/138011858/94466218-77db-4f34-a0c1-cf982557272f)
 
 
